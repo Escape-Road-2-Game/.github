@@ -2,6 +2,8 @@
 
 ---
 
+<a href="https://izigames.net/">👉 Play Escape Road 2 Unblocked 👈</a>
+
 ### 🛣️ Escape Road 2 Unblocked – Insane Speed Meets Endless Racing
 
 **Escape Road 2 Unblocked** is an **epic hyper-casual racing game** where speed, reflexes, and decision-making collide. It’s not just a simple drive — it’s a test of your survival on winding, disappearing roads at **blazing turbo speed**.
