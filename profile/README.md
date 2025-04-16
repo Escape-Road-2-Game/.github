@@ -2,7 +2,7 @@
 
 ---
 
-<a href="https://izigames.net/">👉 Play Escape Road 2 Unblocked 👈</a>
+## <a href="https://izigames.net/">👉 Play Escape Road 2 Unblocked 👈</a>
 
 ### 🛣️ Escape Road 2 Unblocked – Insane Speed Meets Endless Racing
 
